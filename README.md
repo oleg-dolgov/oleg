@@ -1,0 +1,2 @@
+# oleg
+memory card
